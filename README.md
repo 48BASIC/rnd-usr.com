@@ -1,2 +1,2 @@
-# rand-usr.com
+# rnd-usr.com
 ©
